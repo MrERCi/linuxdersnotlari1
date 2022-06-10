@@ -1,0 +1,1 @@
+# linuxdersnotlari1
